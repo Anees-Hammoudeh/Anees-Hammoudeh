@@ -39,8 +39,8 @@
 ---
 
 ## 📫 Contact Me
-- 📧 Email: your-email@example.com  
-- 💼 LinkedIn: (add later)
+- 📧 Email: aneesassadhammoudeh12@gmail.com  
+- 💼 LinkedIn: https://www.linkedin.com/in/anees-hammoudeh
 
 ---
 
